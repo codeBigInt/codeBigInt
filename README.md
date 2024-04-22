@@ -1,4 +1,4 @@
-👋 I am a Code Youngster and Frontend Web Developer 
+👋 I am a Code Youngster and ReactJs Developer 
 
 ❤️ Lover of the Js Fam | Reactjs | Vanila Js and Node.
 
