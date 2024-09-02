@@ -1,10 +1,8 @@
-👋 I am a Code Youngster and ReactJs Developer 
+✅ ReactJs Developer 
 
 ❤️ Lover of the Js Fam | Reactjs | Vanila Js and Node.
 
-✅ Currently learning Nodejs
-
-🚀 Entrepreneur and Technical Educator 
+✅ Currently learning Mobile Development 
 
 🎸 Plays Musical Instruments 
 
