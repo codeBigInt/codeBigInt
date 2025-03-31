@@ -1,6 +1,6 @@
-✅ ReactJs Developer 
+✅ Web Developer - Midnight Blockchain
 
-❤️ Lover of the Js Fam | Reactjs | Vanila Js and Node.
+❤️ Lover to code for fun
 
 ✅ Currently learning Mobile Development 
 
