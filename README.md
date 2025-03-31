@@ -1,8 +1,8 @@
-✅ Web Developer - Midnight Blockchain
+✅ Web Developer - Midnight Blockchain | MERN Stack Developer
 
 ❤️ Loves to code for fun
 
-✅ Currently learning Mobile Development 
+✅ Currently learning DApp Development on Midnight Blockchain
 
 🎸 Plays Musical Instruments 
 
