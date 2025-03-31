@@ -1,6 +1,6 @@
 ✅ Web Developer - Midnight Blockchain
 
-❤️ Lover to code for fun
+❤️ Loves to code for fun
 
 ✅ Currently learning Mobile Development 
 
