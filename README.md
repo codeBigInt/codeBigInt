@@ -1,8 +1,8 @@
-✅ Web Developer - Midnight Blockchain | MERN Stack Developer
+✅ DApp developer - Midnight Blockchain | MERN Stack Developer | Midnight ALIIT Ambassador
 
 ❤️ Loves to code for fun
 
-✅ Currently learning DApp Development on Midnight Blockchain
+✅ Currently building on Midnight Blockchain
 
 🎸 Plays Musical Instruments 
 
