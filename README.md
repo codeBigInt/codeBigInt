@@ -2,9 +2,9 @@
 
 ❤️ Loves to code for fun
 
-✅ Currently building on Midnight Blockchain
+✅ Currently building on Midnight & CKB Blockchain
 
-🎸 Plays Musical Instruments 
+🎸 Plays several musical instruments 
 
 🔗 Connect with me https://x.com/codebigint_01?t=75KxaETLRhbY5oTt9CKbjQ&s=09
 
