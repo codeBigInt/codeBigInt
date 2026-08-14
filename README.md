@@ -1,4 +1,4 @@
-✅ DApp developer - Midnight Blockchain | MERN Stack Developer | Midnight ALIIT Fellow
+✅ DApp developer - Midnight Blockchain | Full Stack Developer | Midnight ALIIT Fellow
 
 ❤️ Loves to code for fun
 
