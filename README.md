@@ -6,4 +6,4 @@
 
 🎸 Plays several musical instruments 
 
-🔗 Connect with me https:elliotlucky.com
+🔗 Connect with me https://elliotlucky.com
